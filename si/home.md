@@ -1,0 +1,1 @@
+## Yhale web අඩවියේ knowledge base portal එක වෙත ඔබව සාඩරයෙන් පිලිගනිමු.
